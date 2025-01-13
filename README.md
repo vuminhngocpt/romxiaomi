@@ -1,6 +1,11 @@
-#### Rom Xĩ Sao Mì Các Loại 
-
-  - các bạn chọn đúng loại máy nhé 
+#### Rom Cho Hãng Xiaomi 
 
 
-👉🏻[Mi Wifi Mini R1C] (test)
+
+ ⚠️Bạn Chọn Đúng Dòng Máy Và Mã Sản Phẩm Nhé , Tôi Không Chịu Khi Up Rom Bị Lỗi , Bạn Không Phải Người Không Biết Mình Làm Gì Thì Không Nên Nghịch Theo !
+
+👉🏻 [Mi Wifi Mini R1C](test)
+
+
+
+        VMNiT©-Minh Ngọc
